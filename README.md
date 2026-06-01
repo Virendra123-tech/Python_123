@@ -1,0 +1,1 @@
+# I Have used numy i have perfrom slicing 
